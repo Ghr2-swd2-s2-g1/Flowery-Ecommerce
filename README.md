@@ -1,1 +1,0 @@
-# PureGl-e-Commerce
